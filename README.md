@@ -1,4 +1,4 @@
-# ISS210Sec4SS2323Team19Final
+# ISS210SS23Sec4Team19
 Here are our team citations to articles we have referenced for our issue. 
    </p> post 1, by Fatimah Zahra; Information: https://education.nationalgeographic.org/resource/humidity/ Image: https://scijinks.gov/what-is-humidity/
    
